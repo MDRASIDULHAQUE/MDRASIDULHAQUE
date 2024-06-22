@@ -34,160 +34,279 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 
 💝 Hello Sir,
-🍹 I am always up-to-date on the latest SEO trends, and I am constantly learning new ways to improve my clients' websites. I'm also a member of several SEO associations and communities, where I share my knowledge and learn from others.
+🍹 I am always up-to-date on the latest SEO trends and I am constantly learning new ways to improve my clients' websites. I'm also a member of several SEO associations and communities, where I share my knowledge and learn from others.
 
-🍹🍹🍹 Professional SEO expert With Advance SEO strategy. Doing SEO for every CMS Like WordPress, Shopify, Squarespace, Wix, Joomla, Webflow, and Blogger.
+🍹🍹🍹 Professional SEO expert With Advance SEO strategy. Doing SEO for every CMS Like WordPress, Shopify, Squarespace, Wix, Joomla, Webflow and Blogger.
 
 
 ✳️⭐⭐⭐ What is delivered? ❇️⇉
 
+
 🟩 SEO audit.
+
 🟩 Backlink analysis.
+
 🟩 Keyword research.
+
 🟩 Competitors research.
+
 🟩 Advance SEO Strategy
 
+
 🟩 On-page SEO.
+
 🟩 Technical SEO.
+
 🟩 Off-page Strategy
+
 🟩 LOCAL SEO
+
 🟩 Full STACK SEO
+
 🟩 E-COMMERCE SEO.
 
+
 🟩 Analytics.
+
 🟩 Yoast SEO.
+
 🟩 RANK MATH SEO.
+
 🟩 E-COMMERCE SEO.
+
 🟩 SEO for Small Business (Low-cost SEO for Startup)
+
+
 
 
 ✳️⭐🔶⭐🔶⭐✳️------ Full STACK SEO ------✳️⭐🔶⭐🔶⭐❇️⇉
 
+
 ❇️ ON-PAGE SEO ❇️⇉
+
 👉 Header tags
+
 👉 URL Structure
+
 👉 Compress image
+
 👉 Broken link issues
+
 👉 Keyword Research
+
 👉 Permalink Structure
+
 👉 Fix duplicate content
+
 👉 Title & Meta Description
+
 👉 Internal & External Linking
+
 👉 Proper ALT text for images and SO MORE.
 
+
+
 ❇️ Technical SEO ❇️⇉
+
 👉 XML Sitemap
+
 👉 Robots.txt file
+
 👉 SSL Certificate
+
 👉 Canonical URL
+
 👉 404 Redirection
+
 👉 Schema Markup
+
 👉 Google Analytics
+
 👉 Google Search Console
+
 👉 Improve Website Speed
+
 👉 Google My Business Setup and SO MORE.
 
+
 ❇️ OFF-PAGE SEO ❇️⇉
+
 👉 Guest Posting
+
 👉 Web 2.0 Links
+
 👉 Blog Comments
+
 👉 PDF Submission
+
 👉 Forum backlinks
+
 👉 Profile Backlinks
+
 👉 Image submission
+
 👉 Do follow Backlinks
+
 👉 Articles Submission
+
 👉 Social bookmarking
+
 👉 Niche Relevant Backlinks
+
 👉 Ping Submission and SO MORE.
+
+
 
 
 ✳️⭐⭐⭐ E-COMMERCE WEBSITE SEO ⭐⭐⭐❇️⇉
 
+
 🔻 IMG Alt
+
 🔻 Meta Tag
+
 🔻 Image compress.
+
 🔻 URL Optimization
+
 🔻 Product Description
+
 🔻 Speed Optimization.
+
 🔻 Product Keyword research
+
+
 
 
 
 ✳️⭐⭐⭐ Area Of Expertise includes ❇️⇉
 
+
 👉 SEO
+
 👉 On-page SEO
+
 👉 Technical SEO
+
 👉 Off-page SEO
+
 👉 Local SEO
+
 👉 Full SEO package
+
 👉 E-COMMERCE SEO
 
+
 👉 SEO Audit
+
 👉 SEO Analysis
+
 👉 Keyword Research
+
 👉 Competitor Analysis
+
 👉 Advance SEO Strategy
 
 
+
 👉 Yoast SEO
+
 👉 RANK MATH SEO
+
 👉 GMB EXPERT
+
 👉 E-COMMERCE SEO
+
 👉 SEO for Small Business (Low-cost SEO for Startup)
+
 
 
 ❇️⭐⭐⭐ EXPERT OF CMS (Content Manage System) SEO ⭐⭐⭐❇️⇉
 
+
 👉 Wix SEO
+
 👉 Shopify SEO
+
 👉 WordPress SEO
+
 👉 Squarespace SEO
+
 👉 Blogger SEO
+
 👉 Laravel SEO
+
 👉 Joomla SEO
+
 👉 Webflow SEO
+
 
 
 
 ✳️ ⭐⭐ OTHERS SERVICE ⭐⭐❇️⇉
 
+
+
 👉 Google Ads
+
 👉 Google Analytics
+
 👉 Google My Business
+
 👉 Google Search Console
+
 👉 Facebook ads
+
 👉 Facebook Pixel
+
 👉 Facebook Analytics
+
 👉 YouTube analytics
+
+
 
 
 
 ❇️⭐⭐⭐ Benefits:
 
+
 🍹 Increase sales.
+
 🍹 Increase traffic.
+
 🍹 Increase brand awareness.
+
 🍹 Improve search engine ranking.
+
 
 
 ✳️⭐⭐ Tools I am familiar with. ❇️⇉
 
+
 🟩 Ahrefs
+
 🟩 MozPro
+
 🟩 Semrush
+
 🟩 Ubbersuggest
+
 🟩 Google Analytics
+
 🟩 Keyword Relevant Pro
+
 🟩 Google Search console
 
+
 I am confident that I can help you improve your website's SEO and get you more traffic.
+
 I am always up-to-date on the latest SEO trends, and I am constantly learning new ways to improve my clients' websites.
 
 ✳️ Feel Free To Contact Me For Free SEO Consultant and Website Audit ✳️
 
+
 ⭐ Contact me today to get started!⭐
+
 
 
 
