@@ -79,9 +79,9 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 🟩 SEO for Small Business (Low-cost SEO for Startup)
 
+▫
 
-
-
+▫
 
 ✳️⭐🔶⭐🔶⭐✳️------ Full STACK SEO ------✳️⭐🔶⭐🔶⭐❇️⇉
 
@@ -113,8 +113,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 Proper ALT text for images and SO MORE.
 
-
-
+▫
 
 
 ❇️ Technical SEO ❇️⇉
@@ -141,8 +140,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 Google My Business Setup and SO MORE.
 
-
-
+▫
 
 ❇️ OFF-PAGE SEO ❇️⇉
 
@@ -172,9 +170,8 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 Ping Submission and SO MORE.
 
-
-
-
+▫
+▫
 
 
 ✳️⭐⭐⭐ E-COMMERCE WEBSITE SEO ⭐⭐⭐❇️⇉
@@ -196,10 +193,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 🔻 Product Keyword research
 
-
-
-
-
+▫
 
 
 ✳️⭐⭐⭐ Area Of Expertise includes ❇️⇉
@@ -221,6 +215,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 E-COMMERCE SEO
 
+▫
 
 👉 SEO Audit
 
@@ -232,7 +227,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 Advance SEO Strategy
 
-
+▫
 
 👉 Yoast SEO
 
@@ -244,8 +239,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 SEO for Small Business (Low-cost SEO for Startup)
 
-
-
+▫
 
 
 ❇️⭐⭐⭐ EXPERT OF CMS (Content Manage System) SEO ⭐⭐⭐❇️⇉
@@ -269,7 +263,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 Webflow SEO
 
-
+▫
 
 
 
@@ -296,9 +290,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 👉 YouTube analytics
 
-
-
-
+▫
 
 
 
@@ -315,6 +307,7 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 🍹 Improve search engine ranking.
 
+▫
 
 
 ✳️⭐⭐ Tools I am familiar with. ❇️⇉
@@ -336,10 +329,14 @@ Skills: Full Stack SEO Expert & Problems Solver || E-Commerce SEO || Shopify SEO
 
 🟩 Google Search console
 
+▫
 
 I am confident that I can help you improve your website's SEO and get you more traffic.
 
-I am always up-to-date on the latest SEO trends, and I am constantly learning new ways to improve my clients' websites.
+I am always up-to-date on the latest SEO trends and I am constantly learning new ways to improve my clients' websites.
+
+▫
+▫
 
 ✳️ Feel Free To Contact Me For Free SEO Consultant and Website Audit ✳️
 
